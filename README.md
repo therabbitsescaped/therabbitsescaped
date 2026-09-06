@@ -1,14 +1,20 @@
+
+<a href="https://www.youtube.com/watch?v=fEyyMNGhB2c"><img align="center" src="https://64.media.tumblr.com/1325ede91126d14873274f75b335aac6/f8fffa35a3070f3b-d4/s2048x3072/7540566890cdecf19d76e4f8f7a2d844643c8a02.pnj" witdh="990" height="990">
+<a href="https://www.youtube.com/watch?v=rGjeOqn7cTI"><img align="right" src="https://file.garden/ac2PNPQgpmbzPCxt/rickflix" witdh="450" height="490">
+
+${\color{#31436A}\textsf{⏜◠}}$ ${\color{#366196}\textsf{𖥔}}$ ${\color{#8AFFF9}\textsf{𓎢𓎟𓎟}}$　[atabook](https://freebunny.atabook.org/)　⟡　[rentry](https://rentry.co/t4meimpala)　⟡　[strawpage (WIP)](https://bunnybon.straw.page/)　⟡　[INT rentry](https://rentry.co/imissyourface)　 
+, 　 　 　  　 𓏫 ˚   ༘　　　　 ${\color{#8AFFF9}\textsf{𖥔}}$　　　　(˘͈ᵕ˘͈ ${\color{#8AFFF9}\textsf{✿}}$) 
+${\color{#8AFFF9}\textsf{𓎢𓎟𓎟}}$ ${\color{#366196}\textsf{𖥔}}$ ${\color{#31436A}\textsf{◠⏜}}$  　 　 　  　 ,
+${\color{#31436A}\textsf{⏜◠}}$ ${\color{#366196}\textsf{𖥔}}$ ${\color{#8AFFF9}\textsf{𓎢𓎟𓎟}}$　 ${\color{#31436A}\textsf{f2i but iwc}}$　⟡　 ${\color{#8AFFF9}\textsf{c+h freely}}$　 ⟡　 ${\color{#31436A}\textsf{sign ata!}}$ ${\color{#8AFFF9}\textsf{𓎢𓎟𓎟}}$ ${\color{#366196}\textsf{𖥔}}$
 <div align="center">
+ 
+${\color{#8AFFF9}\textsf{hi maybe ure asking urself WHO IS THISGUY 😂✌️}}$
 
-<a href="https://youtu.be/nszciRXXJZk?si=87z-qeOf5Av01Yvy"><img src="https://64.media.tumblr.com/bd6a42c4d2fb1bc3d132e1495b19e1a4/0bd262e10ab988e0-83/s1280x1920/2255cb580732225eca9f2baceae0e7bf7167638d.pnj" alt="I LOVE SPRUAN" width="600" ></a>
-<a href="https://youtu.be/nszciRXXJZk?si=87z-qeOf5Av01Yvy"><img src="https://64.media.tumblr.com/c56d76d5d747e0f72947e622e14a6760/0bd262e10ab988e0-d6/s1280x1920/5e8b9ea59abf0f63267360078fa833e258140a0c.pnj" alt="I LOVE SPRUAN" width="750" ></a>
+${\color{#366196}\textsf{well, hes}}$ ${\color{#8AFFF9}\textsf{RICKFLIX!}}$ ${\color{#366196}\textsf{An OC of Rick and Morty by @Nimo!}}$
 
-${\color{#640391}\textsf{⏜◠}}$ ${\color{#B617AC}\textsf{𖥔}}$ ${\color{#BB7CB5}\textsf{𓎢𓎟𓎟}}$　[atabook](https://freebunny.atabook.org/)　⟡　[rentry](https://rentry.co/t4meimpala)　⟡　[strawpage (WIP)](https://bunnybon.straw.page/)　⟡　[INT rentry](https://rentry.co/imissyourface)　 ${\color{#BB7CB5}\textsf{𓎢𓎟𓎟}}$ ${\color{#B617AC}\textsf{𖥔}}$ ${\color{#640391}\textsf{◠⏜}}$
+${\color{#31436A}\textsf{and one of my new comfkinnies . . . i have a lot of them . . . u should see}}$
 
- 𓏫 ˚   ༘　　　　 ${\color{#B617AC}\textsf{𖥔}}$　　　　(˘͈ᵕ˘͈ ${\color{#B617AC}\textsf{✿}}$)　　　₊
+[this rentry](https://rentry.co/rickflix)${\color{#12234D}\textsf{! All my}}$ ${\color{#8AFFF9}\textsf{kinnies and fandoms}}$ ${\color{#12234D}\textsf{are there,}}$ ${\color{#8AFFF9}\textsf{maybe we share one!}}$
+<a href="https://www.youtube.com/watch?v=fEyyMNGhB2c"><img align="center" src="https://file.garden/ac2PNPQgpmbzPCxt/sentimental.png" witdh="1060" height="210">
 
-${\color{#640391}\textsf{⏜◠}}$ ${\color{#B617AC}\textsf{𖥔}}$ ${\color{#BB7CB5}\textsf{𓎢𓎟𓎟}}$　 ${\color{#C6C3C7}\textsf{f2i but iwc}}$　⟡　 ${\color{#640391}\textsf{c+h freely}}$　 ⟡　 ${\color{#C6C3C7}\textsf{sign ata!}}$ ${\color{#BB7CB5}\textsf{𓎢𓎟𓎟}}$ ${\color{#B617AC}\textsf{𖥔}}$ ${\color{#640391}\textsf{◠⏜}}$
-
-<div align="center">
-
-<a href="https://youtu.be/nszciRXXJZk?si=87z-qeOf5Av01Yvy"><img src="https://64.media.tumblr.com/ab54d49048494032f1d7a4596cae9599/0bd262e10ab988e0-52/s1280x1920/74eed49aa3ceacbdc6f1492370bb1b79c8c1d752.pnj" alt="I LOVE SPRUAN" width="750" ></a>
+<a href="https://www.youtube.com/watch?v=fEyyMNGhB2c"><img align="center" src="https://file.garden/ac2PNPQgpmbzPCxt/dividerricklflix2.png" witdh="990" height="990">
